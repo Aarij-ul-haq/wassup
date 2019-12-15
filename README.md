@@ -6,8 +6,6 @@ BBA marketing
 ## Abilities
 ### religion
 muslim
-#### girlfriend
-5
 
 ![my photo](/WhatsApp Image 2019-03-07 at 12.40.34 PM.jpeg)
 
