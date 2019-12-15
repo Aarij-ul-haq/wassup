@@ -6,7 +6,8 @@ BBA marketing
 ## Abilities
 -E-marketing
 -Content writing
-WhatsApp Image 2019-03-07 at 12.40.34 PM
+![Tux, the Linux mascot](/WhatsApp Image 2019-03-07 at 12.40.34 PM)
+
 https://www.w3schools.com/
 ------------------------------
 Contact me via knocking on my room :-)
